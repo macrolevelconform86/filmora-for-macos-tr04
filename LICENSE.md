@@ -1,4 +1,4 @@
-# 
+# Enhance Filmora for macOS with automatic Filmora for macOS LUT | voice-enhancement + real-time-effects, the #1 lut. Includes voice-enhancement and real-time-effects for a smoother
 
 
 
